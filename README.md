@@ -1,2 +1,0 @@
-# vpn
-Kamu Baik Oke
